@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @HSwanglihong
 - 👀 I’m interested in ...anything interesting and better for get money
 - 🌱 I’m currently learning ...Geographic Information System in North China University of Water Resources and Electric Power(NCWU)
-- 💞️ I’m looking to collaborate on ...better man and more money
+- 💞️ I’m looking to collaborate on ...be friends with better man and get more money
 - 📫 How to reach me ...1063816178@qq.com
 
 <!---
